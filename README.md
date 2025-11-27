@@ -1,3 +1,3 @@
-» 👋 Hey I'm Leonardo, 18yo.
+» 👋 Hey I'm Leonardo, 19yo.
 
 » 📍 I live in Turin, Italy.
